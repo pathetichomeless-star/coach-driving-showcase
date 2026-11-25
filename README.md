@@ -8,7 +8,7 @@
 
 **[在线体验驾驶模拟器](https://coach-driving-simulator-n006zm19eq8.qoder.zone/)** · **[查看产品界面](#产品界面)** · **[合作联系](#合作联系)**
 
-**微信：`pathetichomeless`**
+**Email: [pathetichomeless@gmail.com](mailto:pathetichomeless@gmail.com)** · **WeChat: `pathetichomeless`**
 
 欢迎驾校、教练、车载硬件团队交流训练需求与试点合作。添加时请备注「COACH」。
 
@@ -84,7 +84,7 @@
 
 ## 合作联系
 
-**微信：`pathetichomeless`**
+**Email: [pathetichomeless@gmail.com](mailto:pathetichomeless@gmail.com)** · **WeChat: `pathetichomeless`**
 
 欢迎交流：
 
